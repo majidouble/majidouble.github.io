@@ -1,1 +1,0 @@
-# majidouble.github.io
